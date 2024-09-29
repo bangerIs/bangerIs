@@ -1,0 +1,4 @@
+- im the owner of Banger Spoofer
+- extremely fast and responsive
+- loads of fixes
+- my discord server link will be given out soon.
